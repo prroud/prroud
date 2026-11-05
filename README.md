@@ -1,6 +1,6 @@
-# [Eryk Orzech]
+# Eryk Orzech
 **AI / Machine Learning Engineer & GenAI Developer**  
-[erykorzech05@gmail.com] | [www.linkedin.com/in/eryk-orzech-a99384398] |
+erykorzech05@gmail.com | www.linkedin.com/in/eryk-orzech-a99384398 |
 
 ---
 
